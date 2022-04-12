@@ -1,0 +1,1 @@
+I'm tired of working outside doing mundane tasks. I want to use critical thinking logic to work instead of using my body and hands. Military was a good experience but 20 years isn't for me. It feels awesome when you're doing these exercises or the try its during classes and everything works super smooth. I want to keep chasing that feeling.
